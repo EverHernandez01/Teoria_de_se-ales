@@ -1,1 +1,0 @@
-# Teoria_de_se-ales
